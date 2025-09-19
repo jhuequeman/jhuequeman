@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **huequeman@gmail.com**
 
-- 📄 Know about my experiences [https://flowcv.com/resume/etdp3kididjv](https://flowcv.com/resume/etdp3kididjv)
+- 📄 Know about my experiences https://flowcv.com/resume/etdp3kididjv
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
